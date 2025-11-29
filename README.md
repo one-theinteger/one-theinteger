@@ -13,6 +13,7 @@
 - ... WHY DON'T YOU JUST FIX HER !? ”
   
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=0076ff&width=435&lines=++++++I+do+have+power!...;But+not+𝒆𝒏𝒐𝒖𝒈𝒉.)](https://git.io/typing-svg)
+![](https://file.garden/aSPtuZ-Qjze7pe-Y/VID_20251129213103-ezgif.com-video-to-gif-converter.gif)
 
 
 
