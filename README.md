@@ -1,4 +1,4 @@
-wip
+꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=Fossils!&color=ff698f&style=plastic)꒱
 <!--
 **one-theinteger/one-theinteger** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
