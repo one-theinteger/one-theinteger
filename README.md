@@ -1,14 +1,35 @@
+</div>
+
+<div align="center">
+  
 「 ![](https://komarev.com/ghpvc/?username=one-theinteger&base=1&label=✩：Signatures...&color=2D068C&style=plastic) 」
 
 ![](https://file.garden/aSPtuZ-Qjze7pe-Y/Untitled106_20251129235113.png)
 
-- - -
-__“ HOW MUCH DOES A DEAL WITH ME EVEN MATTER !? YOU HAVE ALL THIS POWER ! —__
+</div>
 
-_... WHY DON'T YOU JUST FIX HER !? ”_
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=444DFF&width=435&lines=+I+do+have+power!...;But+not+𝒆𝒏𝒐𝒖𝒈𝒉.)](https://git.io/typing-svg)
+<div align="center">
 
-hi this is still a wip ! My main is listed above , I prefer u follow there tysm ^_^
+
+${{\color{#ffbb00}{\textsf{,,HOW MUCH DOES A DEAL WITH ME EVEN MATTER !? YOU HAVE ALL THIS POWER!"}}}}$
+
+</div>
+
+<div align="center">
+  
+${{\color{#ffbb00}{\textsf{... WHY DON'T YOU JUST FIX HER !? ” }}}}$
+
+ </div>
+
+<div align="center"> 
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=0076ff&width=435&lines=++++++I+do+have+power!...;But+not+𝒆𝒏𝒐𝒖𝒈𝒉.)](https://git.io/typing-svg)
+
+
+
+
+
+${{\color{#7f00ff}{\textsf{ , My main is listed above , I prefer u follow there tysm  }}}}$
 <!--
 **one-theinteger/one-theinteger** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
