@@ -1,4 +1,13 @@
 「 ![](https://komarev.com/ghpvc/?username=one-theinteger&base=1&label=✩：Signatures...&color=2D068C&style=plastic) 」
+
+![](https://file.garden/aSPtuZ-Qjze7pe-Y/Untitled106_20251129235113.png)
+
+- - -
+__“ HOW MUCH DOES A DEAL WITH ME EVEN MATTER !? YOU HAVE ALL THIS POWER ! —__
+
+
+_... WHY DON'T YOU JUST FIX HER !?"_
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines="I+do+have+power...";"But+not+𝑬𝒏𝒐𝒖𝒈𝒉.")](https://git.io/typing-svg)
 <!--
 **one-theinteger/one-theinteger** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
