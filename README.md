@@ -7,6 +7,8 @@ __“ HOW MUCH DOES A DEAL WITH ME EVEN MATTER !? YOU HAVE ALL THIS POWER ! —_
 
 _... WHY DON'T YOU JUST FIX HER !? ”_
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=444DFF&width=435&lines=+I+do+have+power!...;But+not+𝒆𝒏𝒐𝒖𝒈𝒉.)](https://git.io/typing-svg)
+
+hi this is still a wip ! My main is listed above , I prefer u follow there tysm ^_^
 <!--
 **one-theinteger/one-theinteger** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
